@@ -9,7 +9,7 @@ Gopala Krishnan S
 R S Mani  
 Abhishek Singh  
 Dr. Seema Khanna  
-
+B.Bonda Uma MaheshWar Rao
 ---------------------------------
 Industry and Academia Leadership
 ---------------------------------
@@ -23,7 +23,7 @@ Vikalp Sahni
 Rahul Goyal  
 Rahul Matthan  
 Arghya Sengupta  
-
+B. Bonda Uma MaheshWar Rao
 ---------------------------------
 Contributors (Government)
 ---------------------------------
